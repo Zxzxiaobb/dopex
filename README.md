@@ -5,10 +5,12 @@
 
 #### ✨ 加入我们
 想和我们一起玩吗？非常简单！
+
 **第一步**：有3种方法！
 > 访问 [www.boximchat.com](http://www.boximchat.com) 加Zxzxiaobb（棕色多边形头像）/aye82y7（粉色拟态头像）。  
 > 如果没有boxim账号可以在洛谷私信little_bird/Zxzxiaobb。  
 > 在florr中使用指令`/w pehiley_isnob 在吗我想加工会`来私信。  
+
 **第二步**：告诉会长你的实力，约好时间见面即可！
 
 告诉他们你的实力和想加入 dopex 的意愿！
