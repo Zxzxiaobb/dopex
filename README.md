@@ -1,5 +1,22 @@
-#### 我们是英精工会  
-req：有Mpetal  
-我们这里有将近90级的pro，还有不定时的Sweb carry效率极高  
-工会群：www.boximchat.com注册账号搜Zxzxiaobb（棕色多边形头像）加好友进群  
-florr中加入工会www.boximchat.com注册账号搜aye82y7（Umimic头像）（会长）加好友跟他说明自己实力加工会
+# 🌸 dopex 工会官网
+
+## 👋 欢迎！
+欢迎来到 **dopex** 工会！我们是一支充满活力的团队，这里有将近90级的pro玩家，还有不定时的Sweb带飞，效率极高！[reference:2]
+
+## ✨ 加入我们
+想和我们一起玩吗？非常简单！
+**第一步**：访问 [www.boximchat.com](http://www.boximchat.com) 注册账号。
+**第二步**：在游戏（florr）中，搜索以下任意会长ID并加好友：
+- **Zxzxiaobb**（棕色多边形头像）[reference:3]
+- **aye82y7**（Umimic头像）[reference:4]
+
+告诉他们你的实力和想加入 dopex 的意愿！
+
+## 🗣️ 联系我们
+- **游戏内公会群**：通过上述方式加入后，可直接在公会频道聊天。
+- **Boximchat群组**：注册并添加会长为好友后，他会邀请你进入群组。
+
+## 📜 入会要求
+我们希望找到志同道合的伙伴：
+- 拥有 **Mpetal**[reference:5]
+- 热爱团队合作，积极参与公会活动
